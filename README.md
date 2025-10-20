@@ -1,0 +1,1 @@
+# Final-Project_-Customer-Segmentation-at-LG-Corporation-
